@@ -1,4 +1,5 @@
 # Reine Fiktion, Reine Desinformation 
+## Es soll ein großes Geheimnis sein. Erpressung. Ein großes Geheimnis oder so etwas.
 
 Ups. Überfall. Krankenwagen. Feuerwehrauto. Krankenhaus.
 
